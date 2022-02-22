@@ -1,12 +1,12 @@
-### Hi there ❣️
+### Hi my name is Letícia "Oi, me chamo Letícia"  🎀
 
-<!--
-- 🔭 I’m currently working on dressmaking
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- ⚡ Fun fact:♍️ 
--->
+
+
+- ⚙️  I am currently working in the industry 
+- 🌱 I'm learning technology 
+- ⚡ Curiosity: ♍️
+- ♻️ resilience
+
 ##
   ### Competências e estatísticas:
   <a href="https://github.com/leticialob"><br>
